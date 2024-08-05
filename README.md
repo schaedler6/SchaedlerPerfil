@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://moewalls.com/pixel-art/stardew-valley-bus-live-wallpaper
+<img align="right" height="150" src=""  />
 
 ###
 
